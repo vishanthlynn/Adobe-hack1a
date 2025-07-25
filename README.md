@@ -1,1 +1,0 @@
-# Adobe-hack1a
